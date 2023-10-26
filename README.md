@@ -2,5 +2,5 @@
 
 Hi Humans!
 
-Yuni here, I'm a student.
+Yuni here, I'm a fresh graduate from mathematics departement Sebelas Maret Univercity.
 Thank you
